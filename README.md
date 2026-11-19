@@ -1,0 +1,2 @@
+# projekpertama
+bikin projek pai
